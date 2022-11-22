@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Ruby On Rails, HTML, Css, JavaScript**
 
-- 📫 How to reach me **michaelec519@gmail.com**
+- 📫 How to reach me **contact@mike-works.tech**
 
 - 📄 Know about my experiences [www.linkedin.com/in/michaelec19](www.linkedin.com/in/michaelec19)
 
