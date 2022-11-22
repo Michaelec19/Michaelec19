@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **contact@mike-works.tech**
 
-- 📄 Know about my experiences [www.linkedin.com/in/michaelec19](www.linkedin.com/in/michaelec19)
+- 📄 Know about my experiences **www.linkedin.com/in/michaelec19**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
